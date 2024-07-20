@@ -1,6 +1,6 @@
 Who Am I? 🙋‍♀️
 
-👩‍💼 A 32-year-old working as an Airbnb Property Manager.
+👩‍💼 I work as an Airbnb Property Manager.
 
 🇧🇷🇮🇹 I was born in Sao Paulo, Brazil, and I'm half-Italian.
 
